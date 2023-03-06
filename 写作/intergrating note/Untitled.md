@@ -1,0 +1,1 @@
+As opposed to the writer's idea that carved stone balls could be hunting weapons, the professor states that they lacked signs of wear supposed to appear on weapons. She advances the theory by saying that common weapons generally show wears, for instance, having piece broken off, but surfaces of carved stone balls did not show wear or  damage
